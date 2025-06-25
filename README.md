@@ -1,2 +1,2 @@
 # selfTry
-in class session
+in class session - Hi student,,
